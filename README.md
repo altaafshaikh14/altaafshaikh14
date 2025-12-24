@@ -1,7 +1,7 @@
 #### Hi there, I'm Altaf Shaikh 👋
 
 
-## Associate Software Engineer!!
+## Software Engineer!!
 
 - 🌱 I’m Quick learner
 - 👯 I’m looking to collaborate with other content creators
